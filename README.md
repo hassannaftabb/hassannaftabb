@@ -1,1 +1,1 @@
-![meme](https://github.com/user-attachments/assets/87725c4d-865d-4a54-a790-256bd59c70e2)
+<img width="1024" height="1024" alt="image" src="https://github.com/user-attachments/assets/ea26336a-c0f8-4c9b-907a-5728bb666e67" />
